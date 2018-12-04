@@ -3,7 +3,7 @@
 
 ## Misión
 
-**Acercar e mellorar as competencias e a "cultura tecnoloxica" das persoas e organizacións que forman parte da esfera de influencia da cidade de Vigo**
+**Acercar e mellorar as competencias e a "cultura tecnoloxica" das persoas e organizacións que forman parte da esfera de influencia da cidade de Vigo.**
 
 ## Obxetivos globais
 
